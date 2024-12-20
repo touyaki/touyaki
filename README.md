@@ -1,5 +1,4 @@
-# [сылка на инфо тут](https://t.me/T0UAKI) :octocat:
-
+# [сылка на инфо тут](https://t.me/T0UAKI) и [прнсцц](https://pronouns.cc/@toyaki) вот да
 ![1830290795234304209 (1) (1)](https://github.com/user-attachments/assets/4eadb1a2-9132-4c6b-a9d5-68be10cb5d63)
 
 
