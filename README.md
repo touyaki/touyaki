@@ -1,8 +1,3 @@
 
 ![](https://komarev.com/ghpvc/?username=touyaki&color=blueviolet&style=for-the-badge&label=сколько+прочекало+профиль&abbreviated=true)   ‎  ‎ :trollface:
 
-:bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie:
-
-:bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie::bowtie:
-
-
